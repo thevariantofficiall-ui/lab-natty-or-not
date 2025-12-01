@@ -24,7 +24,7 @@ Utilizei o **Gemini** para pesquisar tendencias atuais de IAs Generativas e estr
 
 O e-book apresenta um conteudo solido e bem estruturado, demonstrando como as IAs Generativas estao revolucionando diferentes setores da economia em 2025. O documento esta pronto para publicacao e compartilhamento como material educativo.
 
-[ACESSE O E-BOOK AQUI](https://drive.google.com/file/d/SEU_ID_AQUI/view?usp=sharing)
+[ACESSE O E-BOOK AQUI](https://drive.google.com/file/d/1e5GEGuEgwL89vN3lJpxn2hXhZrF81zYs/view?usp=sharing)
 
 ## Reflexao
 
